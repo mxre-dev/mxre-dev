@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mxre-dev
+- 👀 I’m interested in Coding , Gaming & Cooking.
+- 🌱 I’m currently learning Python , node.js , java. etc etc.
+- 💞️ I’m looking to collaborate on Codes and more.
+- 📫 How to reach me On Discord.  : .mxr8.
+- 😄 Pronouns: He / Him
+- ⚡ Fun fact: i love gaming and making new friends!
